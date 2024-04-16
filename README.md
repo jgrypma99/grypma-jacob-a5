@@ -1,1 +1,0 @@
-# grypma-jacob-a5
